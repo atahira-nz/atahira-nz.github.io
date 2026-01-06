@@ -1,3 +1,3 @@
 # atahira-nz.github.io
 
-Be excellent to one another. 
+Be excellent to each other. 
